@@ -1,1 +1,0 @@
-# CODETECK-TASK1
